@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Amogus](https://www.google.com/imgres?imgurl=https%3A%2F%2Fplay-lh.googleusercontent.com%2F8ddL1kuoNUB5vUvgDVjYY3_6HwQcrg1K2fd_R8soD-e2QYj8fT9cfhfh3G0hnSruLKec&imgrefurl=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.innersloth.spacemafia%26hl%3Den_US%26gl%3DUS&tbnid=9T5M8ewcXQEJ0M&vet=12ahUKEwiNz5zT1KH2AhUMA50JHbfbAc0QMygBegUIARDYAQ..i&docid=OiU88Gti7MiAfM&w=512&h=512&q=among%20us&ved=2ahUKEwiNz5zT1KH2AhUMA50JHbfbAc0QMygBegUIARDYAQ)
